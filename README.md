@@ -1,0 +1,1 @@
+# file-C-Users-CHIP7-OneDrive-Documentos-Minera-C3-A7-C3-A3o2-Minera-C3-A7-C3-A3o3-criptomoedas.ht
